@@ -5,6 +5,6 @@
 - 🤔 I'm Looking For Help With ... BUILDING UP MY WEBSITES. 😅 🖥💻🖥💻🖥
 - 💬 Ask Me About ... ANYTHING !!! 😁 😁 😁 
 - 📫 How To Reach Me : ... /
-- 😄 Pronouns : ... SHE / HER - HE / HIM -( I'M GENDER FLUID ) !!! 👩🏼 👦🏼
+- 😄 Pronouns : ... SHE / HER - HE / HIM - ( I'M GENDER FLUID ) !!! 👩🏼 👦🏼
 - ⚡ Fun Fact : ... /
 -->
